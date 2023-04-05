@@ -1,1 +1,0 @@
-# Sumana-resume
